@@ -1,2 +1,0 @@
-# rishabhsolanki
-Rishabh Solanki Portfolio
